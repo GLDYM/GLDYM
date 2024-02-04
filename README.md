@@ -1,5 +1,7 @@
-I’m Polaris_Light, studying in Shanghai Medical College.
-
-Major in Clinical Medicine, So **Very Poor and Strange logical**.
+I’m Polaris_Light. Mijn naam is Polaris_Light.
 
 UTC +8, [No Hello](https://nohello.net/) plz~
+
+---
+
+To be or not to be, that is a question.
