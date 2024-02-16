@@ -6,4 +6,6 @@ UTC +8, [No Hello](https://nohello.net/) plz~
 
 To be or not to be, that is a question.
 
+(Click Image below to give me a hug …)
+
 [![hug](http://huggle.jdf2.org/sig/PolarisLight.png)](http://huggle.jdf2.org/hug/PolarisLight)
