@@ -1,6 +1,6 @@
 Mijn naam is Polaris_Light. Ik studeer geneeskunde in Fudan Universiteit.
 
-[No Hello](https://nohello.net/) 
+[Geen hallo](https://nohello.net/) 
 
 ---
 
