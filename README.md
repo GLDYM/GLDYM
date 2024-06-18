@@ -1,11 +1,11 @@
-I’m Polaris_Light. Mijn naam is Polaris_Light.
+Mijn naam is Polaris_Light. Ik studeer geneeskunde in Fudan Universiteit.
 
-UTC +8, [No Hello](https://nohello.net/) plz~
+[No Hello](https://nohello.net/) 
 
 ---
 
-To be or not to be, that is a question.
+Zijn of niet, dat is de vraag.
 
-(Click Image below to give me a hug …)
+(Klik op de afbeelding hieronder om me een knuffel te geven …)
 
-[![hug](http://huggle.jdf2.org/sig/PolarisLight.png)](http://huggle.jdf2.org/hug/PolarisLight)
+[![huggle](http://huggle.jdf2.org/sig/PolarisLight.png)](http://huggle.jdf2.org/hug/PolarisLight)
