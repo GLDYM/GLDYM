@@ -1,4 +1,4 @@
-Mijn naam is Polaris_Light. Ik studeer geneeskunde in Fudan Universiteit.
+Mijn naam is Polaris_Light.
 
 [Geen hallo](https://nohello.net/) 
 
